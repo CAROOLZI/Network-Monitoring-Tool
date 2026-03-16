@@ -39,4 +39,4 @@ Sou estudante de TI no **Senac** e atuo como **Estagiária de Suporte de TI**. D
 
 ---
 **Contato:**
-[Seu LinkedIn aqui] | [Seu E-mail aqui]
+[https://www.linkedin.com/in/carolina-fernanda-416301207/] | 
